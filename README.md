@@ -1,4 +1,3 @@
-# Hi, I'm Seerapu Yashwanth Reddy! ✨
 
 ### Digital Creator | AI Prompt Engineer | Mechanical Engineer
 
